@@ -1,4 +1,4 @@
-# 
+# Automático Affinity Photo extensiones para Mac OS | Ligero Affinity Photo extensiones para PC Windows. Con retoque y exportar a SVG — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
